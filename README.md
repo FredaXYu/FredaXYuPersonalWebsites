@@ -1,6 +1,8 @@
 # Freda Xiaoyun Yu's Personal Websites: 
 -----------------------------------------------------
+Alias & name of brand: <b>TuringSnowy</b>
 
+-----------------------------------------------------
 ## Weibo
 https://weibo.com/TuringSnowy
 
