@@ -37,7 +37,16 @@ https://space.bilibili.com/375738727
 https://github.com/FredaXYu/
 
 -----------------------------------------------------
+-----------------------------------------------------
 
+<b>Notes about copyright: </b>
+
+- All of my videos are not allowed to be reloaded by others without the permission of me. 
+- If you are taking any of the contents from any part of my website (or works), you MUST take credit and make professional references. 
+
+-----------------------------------------------------
+
+Welcome to connect with me!  --Freda
 
 
 
