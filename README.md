@@ -14,7 +14,7 @@ https://music.163.com/#/artist/album?id=50708452
 
 -----------------------------------------------------
 ## 5sing Original Musician
-5sing.kugou.com/70010988
+https://5sing.kugou.com/70010988
 
 -----------------------------------------------------
 ## LinkedIn
